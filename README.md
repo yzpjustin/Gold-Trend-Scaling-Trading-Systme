@@ -1,0 +1,1 @@
+# Gold-Trend-Scaling-Trading-Systme
